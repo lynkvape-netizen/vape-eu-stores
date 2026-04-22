@@ -14,7 +14,7 @@ We are a group of professional e-cigarette retailers serving the European market
   Slovenia's professional vape online store, 2% nicotine products for adults, **fast domestic shipping, COD, 7-day free return**.
 - 🇭🇺 **VapZr** (Hungary): https://vapzr.com  
   Hungary's reliable vape retailer, **domestic express delivery, convenient COD, 7-day free return, no hidden fees**.
-- 🇸🇮 **DuhSI** (Slovenia): https://duhsi.com  
+- 🇸🇮 **DuhSI** (Slovenia): https://duvsi.com  
   Slovenia's dedicated vape e-shop, **cross-border & domestic fast shipping, COD, 7-day free return, exclusive promotions**.
 
 ## Unified Store Promotions
